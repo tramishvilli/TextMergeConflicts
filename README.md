@@ -1,1 +1,1 @@
-Hellow Samyaro
+Helow Mdzinare Mzetunaxavo
